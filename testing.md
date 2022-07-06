@@ -14,13 +14,13 @@ dfhdhghукпиsdgngfgsdvf
 frgdhgfhdfgrfgdfgth
 fheqwersdghfaehhy,u,ппddfg
 dfgfgdfhxfdfgdfgr
-bcvnnmbsdgsdfergngdfb
+bcvnnmbsdgsdfergngdfbdf
 gsdfgfgfdzfbrgfthyrttgsdv
 sdgfmhmsfgdfgdgdfgdfgfdvfbf
 Dfgsgmefewf
 sedgdfsgg,fgsgfbh
 zfgdghdhgfgdfsd
-sdgsdghfgfggfilurg
+sdgsdghfgfggfilurgfg
 sdgsdggdfdvdsdvdk.
 dzhzdjFsdfefg
 jxfgjvdfnnrgergjk.jk.
