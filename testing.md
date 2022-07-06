@@ -16,10 +16,10 @@ fheqwersdghfaehhy,u,ппddfgvs
 dfgfgdfhxfdfgdfgrfgdfgvzxvx
 bcvnnmbsdgsdfergngdfbdfdffdv
 gsdfgfgfdzfbrgfthyrttgsdv
-sdgfmhmsfgdfgdgdfgdfgfdvfbfv
+sdgfmhmsfgdfgdgdfgdfgfdvfbfvg
 Dfgsgmefewffbmghmhmdafdfhdvv
 sedgdfsgg,hghmhhmmgmhmgmhm
-zfgdghdhgfgdfsdfdbbsgg
+zfgdghdhgfgdfsdfdbbsgggfgf
 sdgsdghfgfggfilnbnurgfgrgrg
 sdgsdggdfdvdsdvdk.gmgmdhh
 dzhzdjFsdfefgfcvffbdfhf
